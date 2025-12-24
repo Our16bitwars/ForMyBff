@@ -16,6 +16,16 @@
 
 
 
+![D6739326-0973-4B3D-B8C8-9B7CA6C47BE3](https://github.com/user-attachments/assets/ee7c894b-404e-4ef0-95c8-d94a6f8293ed)
+
+
+
+
+
+
+
+
+
 # ★ Thank you for everything. For treating me like a friend instead of a burden like many people. You showed me how a friendship should be. I love you /p
 
 ![IMG_1559](https://github.com/user-attachments/assets/ef537cf1-d108-41d0-bad7-88b719bb3e9d)
