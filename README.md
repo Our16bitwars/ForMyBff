@@ -1,3 +1,21 @@
+
+(Finally updating this😭)
+
+# ｡･:*:･ﾟ★,｡･:*:･ﾟ☆ 
+𝒎𝒆𝒓𝒓𝒚 𝒄𝒉𝒓𝒊𝒔𝒕𝒉𝒊𝒎𝒂𝒔 𝒓𝒐𝒔𝒂𝒍𝒊𝒏𝒂! 𝒚𝒐𝒖'𝒓𝒆 𝒈𝒆𝒏𝒖𝒂𝒍𝒚 𝒔𝒐 𝒌𝒊𝒏𝒅 𝒃𝒓𝒐 𝒍𝒊𝒌𝒆 𝑯𝑶𝑾 𝑫𝑰𝑫 𝑰 𝑴𝑬𝑬𝑻 𝑺𝑶𝑴𝑬𝑶𝑵𝑬 𝑺𝑶 𝑲𝑰𝑵𝑫 𝑬𝑲𝑬𝑲𝑬𝑴𝑱𝑬,, 𝒕𝒉𝒊𝒔 𝒚𝒆𝒂𝒓 𝒘𝒆 𝒎𝒂𝒅𝒆 𝒂𝒍𝒐𝒕 𝒐𝒇 𝒎𝒆𝒎𝒐𝒓𝒊𝒆𝒔 𝒂𝒏𝒅 𝒊 𝒉𝒐𝒑𝒆 𝒏𝒆𝒙𝒕 𝒚𝒆𝒂𝒓 𝒘𝒆 𝒄𝒂𝒏 𝒎𝒂𝒌𝒆 𝒆𝒗𝒆𝒏 𝒎𝒐𝒓𝒆 𝒎𝒆𝒎𝒐𝒓𝒊𝒆𝒔! 𝒚𝒐𝒖'𝒓𝒆 𝒕𝒉𝒆 𝒃𝒆𝒔𝒕𝒆𝒔𝒕 𝒔𝒊𝒔𝒕𝒆𝒓 𝒊 𝒄𝒐𝒖𝒍𝒅 𝒆𝒗𝒆𝒓 𝒂𝒔𝒌 𝒇𝒐𝒓 𝒕𝒉𝒂𝒏𝒌 𝒚𝒐𝒖 𝒇𝒐𝒓 𝒔𝒑𝒆𝒏𝒅𝒊𝒏𝒈 𝒕𝒉𝒊𝒔 𝒚𝒆𝒂𝒓 𝒘𝒊𝒕𝒉 𝒎𝒆 <33
+
+-𝒔𝒊𝒏𝒄𝒆𝒓𝒂𝒍𝒚, 𝒚𝒐𝒖𝒓 𝒃𝒓𝒐𝒕𝒉𝒆𝒓 𝒌𝒊𝒚𝒐♡
+
+
+
+
+
+![6F5F7086-476F-4988-9DD4-2FFCD062A0E0](https://github.com/user-attachments/assets/1e00c09e-ea58-404b-b4e3-c6e123f8b031)
+
+
+
+
+
 # ★ Thank you for everything. For treating me like a friend instead of a burden like many people. You showed me how a friendship should be. I love you /p
 
 ![IMG_1559](https://github.com/user-attachments/assets/ef537cf1-d108-41d0-bad7-88b719bb3e9d)
