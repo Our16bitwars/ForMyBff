@@ -1,4 +1,21 @@
-HI ROSALINA!!!. IDK IF U WILL SEE THIS (or even if u still love me eh..) SO I MISSED U SO BADLY AAAAA WELCOME BACK OKAY??? ILYSM IM GLAF UR OKAY ^wwwwww^
+# IM WORKING ON A DRAWING FOR U OK?? I HOPE Y LIKE TGE WIP SO FARRRRRR🥹🥹
+
+
+
+<img width="1290" height="1132" alt="IMG_4084" src="https://github.com/user-attachments/assets/3ab79a4e-951b-4746-b175-3157306d68ad" />
+
+
+
+
+
+
+
+
+
+
+
+
+# HI ROSALINA!!!. IDK IF U WILL SEE THIS (or even if u still love me eh..) SO I MISSED U SO BADLY AAAAA WELCOME BACK OKAY??? ILYSM IM GLAF UR OKAY ^wwwwww^
 
 
 
