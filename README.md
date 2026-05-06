@@ -1,3 +1,16 @@
+# ROSAAAA I FINISHED THE DRAWING!! I HOPE YOU LIKE IT <3
+
+
+
+<img width="689" height="559" alt="LiminalHEAVEN_20260506160642" src="https://github.com/user-attachments/assets/e9677c5b-a219-4a0e-95ef-1483c794d4e1" />
+
+
+
+
+
+
+
+
 # IM WORKING ON A DRAWING FOR U OK?? I HOPE Y LIKE TGE WIP SO FARRRRRR🥹🥹
 
 
