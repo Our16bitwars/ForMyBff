@@ -1,3 +1,18 @@
+# Drqwings i made in class bcz i missed u sksksjjsjsk
+
+
+<img width="4032" height="3024" alt="IMG_4139" src="https://github.com/user-attachments/assets/f9ff46ae-70b2-457b-949f-6d54cc565ff2" />
+<img width="3024" height="4032" alt="IMG_4138" src="https://github.com/user-attachments/assets/d34f3532-f96c-4b95-8df7-675687d910a8" />
+<img width="3024" height="4032" alt="IMG_4137" src="https://github.com/user-attachments/assets/40d67ff2-481e-4e56-a9f9-0029151d1bc7" />
+
+
+
+
+
+
+
+
+
 # ROSAAAA I FINISHED THE DRAWING!! I HOPE YOU LIKE IT <3
 
 
