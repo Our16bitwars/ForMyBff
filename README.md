@@ -1,3 +1,20 @@
+<img width="1113" height="1032" alt="IMG_4087" src="https://github.com/user-attachments/assets/e1dd2950-b097-42c2-9570-cdda2143af0e" />
+
+
+
+
+
+# Uhh little message bcz i lwk miss u
+
+I WANNA THANK YOU AGAIN FOR BEING MY CLOSEST FRIEND AND BEING SOMEONE SO MEANINGFUL TO MY LIFE <33 idk how to count how many times you genuinely saved me from commiting٫ ik u truly care abt me and i genuinely i see u as a real sister sjsjsjsjsjk😭😭  I genuinely don't know how to thank you for everything but in the end٫ im glad we're best friends and i hope it will last a long time٫ even if in the end we separate٫ i'll have considered u someone who was really special to me٫ AGAIN I LOVE U ALOTTT(/p) Argh idk how to thank u so this lovemail is sorta a rambled thank you note jsskskks ilysmm djek😭😭❤️
+
+
+
+
+
+
+
+
 # Drqwings i made in class bcz i missed u sksksjjsjsk
 
 
